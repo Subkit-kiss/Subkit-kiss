@@ -20,4 +20,4 @@ test
 
 wip STILL UGHGUGHRGHKHGSOUHGUSHGHDFIOGHDLKGNDFKGNDJLGDNJG
 
- [BYI/BYF](https://rentry.co/kiitsunemist88) [STRAW](https://creepylittleteagoth.straw.page/) [ATA](https://ikeda-ren.atabook.org/)
+ [BYI/BYF](https://rentry.co/kiitsunemist88) [STRAW](https://subkit-kiss.straw.page) [ATA](https://ikeda-ren.atabook.org/)
