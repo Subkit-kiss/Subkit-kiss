@@ -20,4 +20,4 @@ test
 
 wip STILL UGHGUGHRGHKHGSOUHGUSHGHDFIOGHDLKGNDFKGNDJLGDNJG
 
- [BYI/BYF](https://rentry.co/kiitsunemist88) [STRAW](https://subkit-kiss.straw.page) [ATA](https://chaos-incarnate.atabook.org/)
+ [BYI/BYF](https://rentry.co/kiitsunemist88) [STRAW](https://subkit-kiss.straw.page) [ATA](https://chaos-incarnate.atabook.org/) [my art!](https://jiji-artgal.straw.page)
