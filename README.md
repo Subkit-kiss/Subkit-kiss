@@ -4,10 +4,11 @@
 
 
 
-$${\color{#b70058}My \space \color{#cf0057}greatest \space \color{#e70056}creation!}$$
+$${\color{#b70058}My \space \color{#cf0057}greatest \space \color{#e70056}creation
 
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTm_2hkn96psaQiPyZl34zKh8O4DIicCCf6TdIg-3E4mvrmswn0vOcIb9Gt&amp;s=10" alt="Small question that&#39;s been on my mind about the playable Biograft :  r/PhightingRoblox"/><img width="236" height="236" alt="image" src="https://github.com/user-attachments/assets/67e8ec19-2fdd-4c92-82cd-7b6e9f0f2275" />
+test!
 
+[![Untitled65-20260904190648.png](https://i.postimg.cc/qMkLhf22/Untitled65-20260904190648.png)](https://postimg.cc/s1NSqN62)
 
 UNDER CONSTRUCTION! 
 COME BACK LATER MORTAL.
