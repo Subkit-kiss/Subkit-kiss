@@ -4,7 +4,7 @@
 
 
 
-$${\color{#b70058}My \space \color{#cf0057}greatest \space \color{#e70056}creation
+${\color{#b70058}My \space \color{#cf0057}greatest \space \color{#e70056}creation
 
 test!
 
